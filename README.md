@@ -6,16 +6,16 @@
 
 met
 
-**Adjective for a woman and woman's name**
+**Krss'Kaahrz, Queen of the Undead Legion**
 
 He wore a *what he wore*
 
-She wore a **what she wore**
+She wore a **Cloak fashioned from the flesh of flayed victims**
 
 He said *“what he said"*
 
-She said **“what she said”**
+She said **“SKRAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA”**
 
 As a consequence, *the consequence*.
 
-And the world said **“what the world said”**
+And the world said **“W-What the fuck?”**
